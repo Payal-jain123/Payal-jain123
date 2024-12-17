@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently working on dsa poblems.. **dsa with java,android**
 
-- 📫 How to reach me **jainpayal7310@gmail.com**
+- 📫 To reach me **jainpayal7310@gmail.com**
 
 - ⚡ Fun fact **I am funny😃...and like to talk everyone and makes the smile.😊😍.**
 
